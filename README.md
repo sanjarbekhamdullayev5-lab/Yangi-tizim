@@ -1,0 +1,2 @@
+# Yangi-tizim
+Yangi tizim
